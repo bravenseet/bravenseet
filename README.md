@@ -2,4 +2,4 @@
 - 👀 I’m interested in photography
 - 🌱 I’m currently learning Python and JS
 - 💞️ I’m looking to collaborate on Python projects
-- 📫 Reach me at bstjbstj77@gmail.com
+- 📫 Reach me at bravenseet@gmail.com
