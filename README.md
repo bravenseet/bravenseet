@@ -1,1 +1,1 @@
-i repel women
+woman repellent
